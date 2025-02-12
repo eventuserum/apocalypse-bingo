@@ -48,3 +48,5 @@ Sports gambling scandals
 Global economic disruption
 Luigi gets acquitted/released
 Cowboys release Dak Prescott
+Musk starts tanning himself
+Mental Health Days are banned by 2028
