@@ -12,14 +12,14 @@ Assassination of National Leader
 U.S. leaves NATO
 x California on fire
 Globalwide Protest
-New Global Virus
+x New Global Virus
 Black star (Free space)
 Internet Shut Down
 National Power Grid Outage
 No crops yield
 Verified E.T.
 x Car drives into mob of people
-TikTok Ban
+x TikTok Ban
 Religion takes over congress
 Yellowstone Explodes
 AGI goes rogue
@@ -34,11 +34,11 @@ Catastrophic climate events
 Economic instability crisis
 Grocery/Gas Super Inflation
 x AI privacy concerns
-Major natural disasters
+x Major natural disasters - Carribean Earthquake 7.6 
 Ancient plague reemergence
 Brazil volcanic eruption
 Global flooding disasters
-Shifts in power dynamics
+x Shifts in power dynamics
 AI societal disruptions
 Heatwaves and droughts
 Influencer scandals
