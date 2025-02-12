@@ -50,3 +50,4 @@ Luigi gets acquitted/released
 Cowboys release Dak Prescott
 Musk starts tanning himself
 Mental Health Days are banned by 2028
+A new Twilight/Harry Potter/Hunger Games book comes out
