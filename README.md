@@ -8,10 +8,10 @@ China begins invasion of Taiwan
 Invasion of U.S.
 Astroid Impact
 Cat 6 F6 storms
-Assassination of National Leader
+x Assassination of National Leader
 U.S. leaves NATO
 x California on fire
-Globalwide Protest
+x Globalwide Protest
 x New Global Virus
 Black star (Free space)
 Internet Shut Down
@@ -26,10 +26,10 @@ AGI goes rogue
 2nd Texas Revolution
 Category 5 hurricane hits Florida/Puerto Rico
 Second Coming of Christ
-Cyber warfare escalation
+x Cyber warfare escalation
 Active Political leader health scare
 European leadership upheaval
-U.S. terrorist activities
+x U.S. terrorist activities
 Catastrophic climate events
 Economic instability crisis
 Grocery/Gas Super Inflation
@@ -41,7 +41,7 @@ Global flooding disasters
 x Shifts in power dynamics
 AI societal disruptions
 Heatwaves and droughts
-Influencer scandals
+x Influencer scandals
 Space exploration breakthroughs
 Scottish independence movement
 Sports gambling scandals
@@ -50,4 +50,4 @@ Luigi gets acquitted/released
 Cowboys release Dak Prescott
 Musk starts tanning himself
 Mental Health Days are banned by 2028
-A new Twilight/Harry Potter/Hunger Games book comes out
+x A new Twilight/Harry Potter/Hunger Games book comes out
