@@ -20,14 +20,14 @@ No crops yield
 Verified E.T.
 x Car drives into mob of people
 x TikTok Ban
-Religion takes over congress
+x Religion takes over congress
 Yellowstone Explodes
-AGI goes rogue
+x AGI goes rogue
 2nd Texas Revolution
 Category 5 hurricane hits Florida/Puerto Rico
 Second Coming of Christ
 x Cyber warfare escalation
-Active Political leader health scare
+x Active Political leader health scare
 European leadership upheaval
 x U.S. terrorist activities
 Catastrophic climate events
@@ -37,10 +37,10 @@ x AI privacy concerns
 x Major natural disasters - Carribean Earthquake 7.6 
 Ancient plague reemergence
 Brazil volcanic eruption
-Global flooding disasters
+x Global flooding disasters
 x Shifts in power dynamics
 AI societal disruptions
-Heatwaves and droughts
+x Heatwaves and droughts
 x Influencer scandals
 Space exploration breakthroughs
 Scottish independence movement
